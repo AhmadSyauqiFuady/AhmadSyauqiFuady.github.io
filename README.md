@@ -1,1 +1,0 @@
-# AhmadSyauqiFuady.github.io
